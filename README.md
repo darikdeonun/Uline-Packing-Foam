@@ -1,1 +1,2 @@
-# Uline-Packing-Foam
+# Uline Packing Foam
+Packaging foam is made from polyethylene, polystyrene or polyurethane. The Packaging Company makes it foam from polyethylene, which is also known as LDPE or PE foam. Polyethylene foam (PE) [Uline packing foam](https://ulinepack.com/expanding-foam-bags/) is denser and has a harder surface than PU foam. It has strong shock and vibration absorption qualities making it ideal for shipping objects that require more stability, like heavy machine parts and fragile items. The foam is an excellent shock absorber, has a high strength to weight ratio, and has a high impact resistance. It's also a good thermal insulator, resistant to water and chemicals, and can be fabricated in multiple different densities based on your needs. 
